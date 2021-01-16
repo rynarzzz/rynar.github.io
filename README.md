@@ -1,1 +1,0 @@
-# rynar.github.io
